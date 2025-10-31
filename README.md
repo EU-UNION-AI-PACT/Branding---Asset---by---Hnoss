@@ -2,7 +2,6 @@
 Back2Future 4 Back2Reality - Branding Concept. Al KI Since Saints!.
 <img width="1536" height="1024" alt="1f82a4f2-8d0d-446f-8ac5-2633e0c6a9a6" src="https://github.com/user-attachments/assets/8b31a364-6667-4470-b92a-4d6dc3eecb8a" />
 <img width="1024" height="1024" alt="de606183-3b27-4d91-b467-2f535681dd66" src="https://github.com/user-attachments/assets/2d571620-fca4-410c-aa48-37ad041e1bf1" />
-<img width="1024" height="1536" alt="b7b5be51-05dd-4d88-8270-5c874aff1a18" src="https://github.com/user-attachments/assets/2f78d9dc-a541-41d3-877f-d368a93c161b" />
 <img width="1536" height="1024" alt="86e9975e-747f-424c-9d07-44635077d54a" src="https://github.com/user-attachments/assets/1eb1828a-c327-4dae-80b5-f8f1acefc018" />
 <img width="1024" height="1024" alt="31538e77-2f53-44ee-b639-99759211d3ff" src="https://github.com/user-attachments/assets/5fe54caa-9e55-49be-adde-91ab3ee04a22" />
 <img width="1024" height="1024" alt="50bbc1e2-cb42-494c-83d1-81cc48dfa6fa" src="https://github.com/user-attachments/assets/4179cc26-c585-435f-a947-2047ed45909d" />
