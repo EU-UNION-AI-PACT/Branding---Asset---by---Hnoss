@@ -1,6 +1,5 @@
 # Branding---Asset---by---Hnoss
 Back2Future 4 Back2Reality - Branding Concept. Al KI Since Saints!.
-<img width="1024" height="1536" alt="ee9119f3-d908-4318-99dd-2f00ab8be643" src="https://github.com/user-attachments/assets/29cd2d91-5a65-47a5-836d-42dc90ed0942" />
 <img width="1536" height="1024" alt="1f82a4f2-8d0d-446f-8ac5-2633e0c6a9a6" src="https://github.com/user-attachments/assets/8b31a364-6667-4470-b92a-4d6dc3eecb8a" />
 <img width="1024" height="1024" alt="de606183-3b27-4d91-b467-2f535681dd66" src="https://github.com/user-attachments/assets/2d571620-fca4-410c-aa48-37ad041e1bf1" />
 <img width="1024" height="1536" alt="b7b5be51-05dd-4d88-8270-5c874aff1a18" src="https://github.com/user-attachments/assets/2f78d9dc-a541-41d3-877f-d368a93c161b" />
