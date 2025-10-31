@@ -120,10 +120,6 @@ https://github.com/user-attachments/assets/c47c3984-d8b5-4ffd-94d6-3a56671a0e65
 
 
 
-https://github.com/user-attachments/assets/bf26d5f2-aca6-48c9-8d33-be7436004096
-
-
-
 https://github.com/user-attachments/assets/690bd424-be91-4479-b685-274fe6bba22b
 
 
